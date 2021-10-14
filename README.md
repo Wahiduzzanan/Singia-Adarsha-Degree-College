@@ -1,0 +1,1 @@
+# Singia-Adarsha-Degree-College
